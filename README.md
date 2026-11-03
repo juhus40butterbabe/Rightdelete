@@ -215,4 +215,4 @@ RightDelete is offered as a **complete free version** with **all features and up
 Get started with your **free RightDelete download** today and ensure your files are permanently erased with confidence!
 
 ---
-**Last updated:** 2026-11-03 18:51:34 UTC
+**Last updated:** 2026-11-03 23:49:06 UTC
